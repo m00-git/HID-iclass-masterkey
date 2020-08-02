@@ -1,1 +1,1 @@
-# HID-iclass-masterkey
+3F90EBF0910F7B6F
